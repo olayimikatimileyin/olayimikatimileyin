@@ -8,7 +8,7 @@
 
 💞️ I’m looking to collaborate on projects that involve solving business problems through data exploration. 
 
-📫 How to reach me: LinkedIn | Instagram: @mickey_smart_
+📫 How to reach me: @linkedin.com/in/akinbowale-micheal | Instagram: @mickey_smart_
 
 <!---
 olayimikatimileyin/olayimikatimileyin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
